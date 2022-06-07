@@ -7,7 +7,7 @@
 - **GitHub:** MariyaDubodel
 
 ### About Me
-Masha
+I have good interpersonal skills, I am an excellent team worker.
 
 ### Skills
 - HTML
